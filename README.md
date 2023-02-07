@@ -2,7 +2,7 @@
 
 We make our contribution to TECOLOTE as a warrior〔Tlacatecolotl〕<br>
 who has the knowledge of an owl〔Tecolote〕, called the wise man of the forest, <br>
-and who listens to words as well as a horned owl〔Tecolotl〕<br>
+and who listens to words to words as well as a horned owl〔Tecolotl〕<br>
 
 ## About Me
 <p>
